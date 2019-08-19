@@ -2,6 +2,8 @@
 
 Team spirit is essential for the close working of our team. Being able to trust each other, speak frankly about difficult topics, support each other through good and bad: all of that needs an investment of time and soul. Having a distributed team - across three offices and many co-working or remote locations - can make it even more difficult to build and maintain that.
 
+Before you plan your travel, take your time to think about the best dates and schedules for travel. After the purchase of the tickets, changes are not available unless justification and approval. So please bear in mind that once the plane tickets/ accommodation have been purchased, all changes/ cancelations will be at the employee expense, if the reason for such is not a company related matter or any reason of force majeure.
+
 This guideline describes and formalises staff ability to move around and visit other offices.
 
 ## Onboarding
